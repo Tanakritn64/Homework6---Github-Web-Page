@@ -1,4 +1,4 @@
-# Homework6---Github-Web-Page
+# Tanakrit6401347.github.io
 6401347 Tanakrit Na Songkhla
 6401347 ธนกฤต ณ สงขลา
 
